@@ -31,5 +31,5 @@ I enjoy building clean, functional projects while growing my crochet brand *Croc
 ---
 
 ## 📫 Connect with Me
-- Email: [your-email@example.com](mailto:your-email@example.com)
-- GitHub: [github.com/YourUsername](https://github.com/YourUsername)
+- Email: kekanapalesa1@gamil.com
+- GitHub: https://github.com/palesaK28
